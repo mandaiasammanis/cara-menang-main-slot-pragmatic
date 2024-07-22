@@ -1,6 +1,7 @@
 **Berikut adalah beberapa tips yang dapat membantu Anda meningkatkan peluang Anda dalam permainan slot:**
 
-[>> DAFTAR KLIK DISINI <<]([url](https://sites.google.com/view/pasticuanvip))
+KLIK DISINI >> https://sites.google.com/view/pasticuanvip
+
 
 [![daftar-sekarang](https://github.com/user-attachments/assets/1c487c35-c349-47e3-910f-b7775b551b0a)]([url](https://sites.google.com/view/pasticuanvip))
 
